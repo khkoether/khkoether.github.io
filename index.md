@@ -19,3 +19,8 @@ ist die eines Mannes mittleren Alters.
 * zeigt Mitgefühl
 * liebt seine Arbeit
 * und spielt leidlich Schach
+
+
+J.F. Sebastian erkennt seine eigene Arbeit und sagt zu Pris:
+
+> There's a part of me in you...
